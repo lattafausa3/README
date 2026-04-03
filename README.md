@@ -20,3 +20,5 @@ https://gravatar.com/heroicb0727b2a6c
 https://about.me/lattafausa
 
 https://www.youtube.com/@LatafaUS
+
+https://medium.com/@latafaus/lattafa-usa-discover-affordable-luxury-fragrances-loved-worldwide-42c1e8fcd11c
